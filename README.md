@@ -1,2 +1,2 @@
 hey
-you thinking
+you think
