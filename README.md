@@ -1,4 +1,1 @@
-hey
-you think
-hm gtghjfghrfg
-sdf
+it's all about razer a gaming product selling website 
